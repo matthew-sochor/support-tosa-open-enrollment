@@ -1,6 +1,6 @@
 # Let the Wauwatosa School Board know you support Open Enrollment
 
-There is potentially a pending vote by the Wauwatosa School board on Open Enrollment.  
+There will potentially be a vote by the Wauwatosa School board on Open Enrollment.  
 
 It is being said that the community does not support Open Enrollment in Tosa schools.  **If you disagree and do support Open Enrollment, the board and Dr. Means needs to hear it.**
 
